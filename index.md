@@ -1,3 +1,7 @@
+---
+title: J Impact Privacy Policy
+---
+
 # Privacy Policy for J Impact
 
 Last updated: 21/12/2024
